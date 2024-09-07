@@ -1,0 +1,1 @@
+Following mockups and images are being used
